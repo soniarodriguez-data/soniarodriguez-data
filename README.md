@@ -2,7 +2,7 @@
 - 👀 I’m interested in Technology
 - 🌱 I’m currently learning Information Security
 - 💞️ I’m looking to collaborate on... I’m open to contributing to open-source projects related to technology and automation.
-- 📫 How to reach me soniayulisarodriguez@gmail.com
+- 📫 How to reach me 
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: I'm always learning something! 🤓
 
